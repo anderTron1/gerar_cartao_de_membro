@@ -1,0 +1,1 @@
+gerar cartão de membro
